@@ -1,0 +1,1 @@
+# Partea-hardware-a-proiectului-pentru-gestionarea-locurilor-de-parcare
